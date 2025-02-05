@@ -1,4 +1,4 @@
-# 2024年最新DesiVPS优惠码-整理汇总DesiVPS优惠活动
+# 2025年最新DesiVPS优惠码-整理汇总DesiVPS优惠活动
 
 ## DesiVPS 介绍
 DesiVPS 是一家位于美国圣何塞的VPS提供商，以其高性能和低成本的服务方案而受到广泛关注。特别是其提供的10Gbps带宽VPS服务，是市场上的热门选择。
